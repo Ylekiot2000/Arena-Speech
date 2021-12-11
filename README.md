@@ -9,3 +9,5 @@ The boy stood on the burning deck
 Whence all but he had fled;
 The flame that lit the battle's wreck
 Shone round him o'er the dead. 
+
+The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time.
