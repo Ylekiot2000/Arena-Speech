@@ -5,3 +5,7 @@ It is not the critic who counts; not the man who points out how the strong man s
 
 Both Ahab and Ishmael are fascinated by the whale, but whereas Ahab perceives him exclusively as evil, Ishmael keeps an open mind. Ahab has a static world view, blind to new information, but Ishmael's world view is constantly in flux as new insights and realizations occur.
 
+The boy stood on the burning deck
+Whence all but he had fled;
+The flame that lit the battle's wreck
+Shone round him o'er the dead. 
